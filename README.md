@@ -1,6 +1,6 @@
 # hentai-school
 
-> 我们只希望你们成为学习的奴隶，是的，永远都是。
+> 我们只希望你们成为学习的奴隶，是的，永远都是。  
 > We all want you to be slaves of study. Yes, Always.
 
 让我们想像一个最BT校规的学校，请发挥一下你们最黑暗的内心！
